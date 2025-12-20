@@ -7,7 +7,8 @@ Follow the clues, analyze the available information, and piece everything togeth
 
 
 
-Answer the questions using this form:
+Answer the questions using this form: https://form.typeform.com/to/NWIIeUlX
+
 
 All answers should be based on information discovered during the challenge.
 
